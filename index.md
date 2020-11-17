@@ -1,4 +1,4 @@
-## Welcome To Some Crazy #Mint #Hurt #Sit Bullshit
+## That Crazy #Mint #Hurt #Sit #Telepathic #Drone #Shit
 
 You can use the [editor on GitHub](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
