@@ -4,6 +4,8 @@ You can use the [editor on GitHub](https://github.com/opeymd/mintfab1000/edit/gh
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
+Fucking shit https://youtu.be/iEjzZOYLkfU?list=PLlyc2oIwrhOm3YyQqtEgtjmfo3Id0Mcnm
+
 ### Markdown
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
