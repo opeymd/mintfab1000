@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Welcome Crazy #Mint #Hurt #Sit Bullshit
 
 You can use the [editor on GitHub](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
