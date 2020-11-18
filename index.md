@@ -12,8 +12,8 @@ Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://j
 (https://music.youtube.com/playlist?list=PLlyc2oIwrhOlbaSveB3Sp6nQmIDDF5THo)
 
 Yayyya
-http://github.com - automatic!
-[GitHub](http://github.com)
+https://soundcloud.com/00000007/aphrodite-live-pittburgh - Aphrodite$
+[live-pittburgh](https://soundcloud.com/00000007/aphrodite-live-pittburgh)
 
 ### Markdown
 
