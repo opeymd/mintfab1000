@@ -28,7 +28,7 @@ Syntax highlighted code block
 - List
 
 - [Link] 
-(https://music.youtube.com/playlist?list=PLlyc2oIwrhOlbaSveB3Sp6nQmIDDF5THo)
+(https://soundcloud.com/00000007/aphrodite-live-pittburgh)
 
 1. Numbered
 2. List
@@ -43,8 +43,6 @@ For more details see [GitHub Flavored Markdown](https://guides.github.com/featur
 ### Jekyll Themes
 
 Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/opeymd/mintfab1000/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-#### Yayyya Aphrodite$- [live-pittburgh](https://soundcloud.com/00000007/aphrodite-live-pittburgh)
 
 ### Support or Contact
 
