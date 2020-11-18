@@ -13,7 +13,6 @@ Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://j
 
 Yayyya
 
-(<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/287259376&color=ff5500"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/00000007" title="-0db" target="_blank" style="color: #cccccc; text-decoration: none;">-0db</a> · <a href="https://soundcloud.com/00000007/aphrodite-live-pittburgh" title="Aphrodite$ Live (Pitt$burgh)" target="_blank" style="color: #cccccc; text-decoration: none;">Aphrodite$ Live (Pitt$burgh)</a></div>)
 
 ### Markdown
 
