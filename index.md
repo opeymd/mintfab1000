@@ -13,7 +13,11 @@ Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://j
 
 ## I DONT KNOW WHAT THE FUCK
 _getrecords_
-https://youtu.be/K8X9EsSYD9k
+- https://youtu.be/K8X9EsSYD9k
+- money here
+- money here
+- money here
+- sex n drugs n bugs here
 
 ### Markdown
 
