@@ -16,17 +16,18 @@ _getrecords_
 - https://youtu.be/K8X9EsSYD9k
 - https://youtu.be/a8WSX2T_r94
 - https://youtu.be/0VY7N1kv13c
+
 ### Mood To Kill
 - https://youtu.be/sy6stJLg28U
 - https://youtu.be/N1JVsTeoZdw
-
-<iframe style="border: 0; width: 100%; height: 120px;" src="https://bandcamp.com/EmbeddedPlayer/album=2652968343/size=large/bgcol=333333/linkcol=e99708/tracklist=false/artwork=small/transparent=true/" seamless><a href="https://dubplates.techitch.com/album/plate-003">PLATE 003 by TECHNICAL ITCH</a></iframe>
-
 -
 - money here
 - money here
 - money here
 - sex n drugs n bugs here - teeny insect drones telepathic "systematic purpose?" 
+
+<iframe style="border: 0; width: 100%; height: 120px;" src="https://bandcamp.com/EmbeddedPlayer/album=2652968343/size=large/bgcol=333333/linkcol=e99708/tracklist=false/artwork=small/transparent=true/" seamless><a href="https://dubplates.techitch.com/album/plate-003">PLATE 003 by TECHNICAL ITCH</a></iframe>
+
 
 ### Markdown
 
