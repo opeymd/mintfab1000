@@ -14,6 +14,13 @@ Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://j
 ## I DONT KNOW WHAT THE FUCK
 _getrecords_
 - https://youtu.be/K8X9EsSYD9k
+- https://youtu.be/a8WSX2T_r94
+- https://youtu.be/0VY7N1kv13c
+### Mood To Kill
+- https://youtu.be/sy6stJLg28U
+-
+-
+-
 - money here
 - money here
 - money here
