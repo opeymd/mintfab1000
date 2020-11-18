@@ -1,10 +1,10 @@
-## That Crazy #Mint #Hurt #Sit #Telepathic #Drone #Shitttt
+## That Crazy #Mint #Hurt #Sit #Telepathic #Drone #Shitttt 
 
 If you dont hate life or telepathic bullshit then the following is too stupid and evil for you, no more milk and cookies, here of confusing love and fire. You can use the [editor on GitHub](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
-
+(https://opeymd.github.io/drone/)[Perverted drone stuff]
 
 ### Jungle n Funky House mixes. Recorded from 2 turntables and various round records
 
