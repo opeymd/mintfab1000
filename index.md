@@ -4,8 +4,13 @@ If you dont hate life or telepathic bullshit then the following is too stupid an
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
-(https://music.youtube.com/playlist?list=PLlyc2oIwrhOlbaSveB3Sp6nQmIDDF5THo)
 
+
+# Jungle n Funky House mixes. Recorded from 2 turntables and various round records
+(https://music.youtube.com/playlist?list=PLlyc2oIwrhOlbaSveB3Sp6nQmIDDF5THo)
+## DJ MIXES / 200 SOMTHING (AD.)
+#### Playlist 
+#### - MIKE DIANA • 2 hours, 11 minutes
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/iEjzZOYLkfU" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
