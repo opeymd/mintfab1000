@@ -9,8 +9,8 @@ Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://j
 # Jungle n Funky House mixes. Recorded from 2 turntables and various round records
 *DJ MIXES / 200 SOMTHING (AD.)*
 #### Playlist / MIKE DIANA • 2 hours, 11 minutes
-(https://music.youtube.com/playlist?list=PLlyc2oIwrhOlbaSveB3Sp6nQmIDDF5THo)
-[https://music.youtube.com/playlist?list=PLlyc2oIwrhOlbaSveB3Sp6nQmIDDF5THo](url)
+[2 hours, 11 minutes] (https://music.youtube.com/playlist?list=PLlyc2oIwrhOlbaSveB3Sp6nQmIDDF5THo)
+
 ## I DONT KNOW WHAT THE FUCK
 _getrecords_
 - https://youtu.be/K8X9EsSYD9k
