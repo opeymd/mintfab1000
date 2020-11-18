@@ -4,7 +4,7 @@ If you dont hate life or telepathic bullshit then the following is too stupid an
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
-[Perverted drone stuff](https://opeymd.github.io/drone/)
+See some [Perverted drone stuff](https://opeymd.github.io/drone/)
 
 ### Jungle n Funky House mixes. Recorded from 2 turntables and various round records
 
