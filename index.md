@@ -11,10 +11,6 @@ Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://j
 <iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/931514299&color=%232c241c&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/opeymd" title="@Y*^%$^%" target="_blank" style="color: #cccccc; text-decoration: none;">@Y*^%$^%</a> · <a href="https://soundcloud.com/opeymd/early-pre-2000-jungle-tunes" title="Early &amp; Pre 2000 Jungle Tunes (Continuous DJ Set)" target="_blank" style="color: #cccccc; text-decoration: none;">Early &amp; Pre 2000 Jungle Tunes (Continuous DJ Set)</a></div>
 
 
-
-*MIKE DIANA / 200 SOMTHING (AD.)*
-#### [DJ Mixes • 2 hours, 11 minutes](https://music.youtube.com/watch?v=yKJr4QeviFw&list=PLlyc2oIwrhOlbaSveB3Sp6nQmIDDF5THo).
-
 ## I DONT KNOW WHAT THE FUCK
 _getrecords_
 - https://youtu.be/K8X9EsSYD9k
