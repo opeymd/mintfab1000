@@ -12,6 +12,11 @@ Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://j
 
 
 ## I DONT KNOW WHAT THE FUCK
+
+What the mind tap fuck. "Not good" no shit, fuck my brain with the devils breath playing God. Suck my d.i.c.k.
+A freaked out prisoner pissed off waiting to kill is a job well done. suck a dick.
+
+
 _getrecords_
 - https://youtu.be/K8X9EsSYD9k
 - https://youtu.be/a8WSX2T_r94
