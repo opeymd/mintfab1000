@@ -12,7 +12,7 @@ Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://j
 [2 hours, 11 minutes]
 
 
-[Link](https://music.youtube.com/playlist?list=PLlyc2oIwrhOlbaSveB3Sp6nQmIDDF5THo) 
+[https://music.youtube.com/playlist?list=PLlyc2oIwrhOlbaSveB3Sp6nQmIDDF5THo](Fuck) 
 
 ## I DONT KNOW WHAT THE FUCK
 _getrecords_
