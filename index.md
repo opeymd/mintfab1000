@@ -18,17 +18,21 @@ _getrecords_
 - https://youtu.be/0VY7N1kv13c
 ### Mood To Kill
 - https://youtu.be/sy6stJLg28U
--
+- https://youtu.be/N1JVsTeoZdw
 -
 -
 - money here
 - money here
 - money here
-- sex n drugs n bugs here
+- sex n drugs n bugs here - teeny insect drones telepathic "systematic purpose?" 
 
 ### Markdown
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+
+- tithing / THE OUTCOME we live(d) to consume well above equal share demanding power over control of the last analysis. Life in war is mercy like fire is to cavemen. We can be squshed as easy a ant. We are probably on a last lession before the slate is wiped clean again. Gods Nature cant be changed no matter the supreme power it holds on earth and beyond. We can be put to sleep and rewoke as many times as needed to pay back all we take. These are Perfect days to die as we burn away. We are already mindwrpped or treated w alien drugs (shit from outerspace/ not earth) blocked off from gods original OBVIOUS nature. Telekenic magnit dust or gas from mars, intelligent, self evolving and mutating to adapt to the purpose. It wants to be god. It, satin, call it whatever, will be the death of us. Anything between us and God is destroyed if not moved out of the way. Thats a fact, and a well deserved one for everyone. Fuck what you think
+
+- 
+
 
 ```markdown
 Syntax highlighted code block
@@ -41,7 +45,6 @@ Syntax highlighted code block
 - List
 
 - [Link] 
-(https://soundcloud.com/00000007/aphrodite-live-pittburgh)
 
 1. Numbered
 2. List
