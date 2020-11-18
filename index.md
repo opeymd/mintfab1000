@@ -11,8 +11,6 @@ Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://j
 #### Playlist / MIKE DIANA • 2 hours, 11 minutes
 # (https://music.youtube.com/playlist?list=PLlyc2oIwrhOlbaSveB3Sp6nQmIDDF5THo)
 
-#### Yayyya Aphrodite$- [live-pittburgh](https://soundcloud.com/00000007/aphrodite-live-pittburgh)
-
 ## I DONT KNOW WHAT THE FUCK
 
 ### Markdown
@@ -45,6 +43,8 @@ For more details see [GitHub Flavored Markdown](https://guides.github.com/featur
 ### Jekyll Themes
 
 Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/opeymd/mintfab1000/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+
+#### Yayyya Aphrodite$- [live-pittburgh](https://soundcloud.com/00000007/aphrodite-live-pittburgh)
 
 ### Support or Contact
 
