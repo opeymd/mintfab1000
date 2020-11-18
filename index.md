@@ -1,7 +1,6 @@
-## Peeping Drones, dust and insect murder. Suck my motherfucking DICK 
+## That Crazy #Mint #Hurt #Sit #Telepathic #Drone #Shitttt
 
-If drones spy and dont pay off in 25 million$ deposits, it can suck a dick.  If drones spy and dont kill off the real enemy, it can suck a dick. 
-Suck my dick suck my dick suck my dick. My dick is much nicer useful than robot dildos. Also my DICK is very expensive. 
+Would you just like to fuck my brain until Im dead? Maybe you will find invisible things out of this world and time. 
 
 You can use the [editor on GitHub](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
