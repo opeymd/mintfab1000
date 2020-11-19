@@ -61,7 +61,7 @@ Syntax highlighted code block
 
 **Bold** and _Italic_ and `Code` text
 ```
-🤖	[An Introduction to Artificial Intelligence and Legal Reasoning](https://scholarship.richmond.edu/cgi/viewcontent.cgi?article=1228&context=jolt) 
+## 🤖	[An Introduction to Artificial Intelligence and Legal Reasoning](https://scholarship.richmond.edu/cgi/viewcontent.cgi?article=1228&context=jolt) 
 
 'The paper includes a
 discussion of the limits and implications of computer programming in
