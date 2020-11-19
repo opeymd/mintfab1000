@@ -63,6 +63,12 @@ Syntax highlighted code block
 ```
 [An Introduction to Artificial Intelligence and Legal Reasoning](https://scholarship.richmond.edu/cgi/viewcontent.cgi?article=1228&context=jolt) 
 
+'The paper includes a
+discussion of the limits and implications of computer programming in
+formal representations of the law. Concluding that formalization of the
+law reveals implicit weaknesses in reductionist legal theories, this
+paper emphasizes the limitations in practice of such theories. '
+
 For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/)
 
 ### Jekyll Themes
