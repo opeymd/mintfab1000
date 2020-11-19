@@ -61,10 +61,8 @@ Syntax highlighted code block
 
 **Bold** and _Italic_ and `Code` text
 
-[An Introduction to Artificial Intelligence and Legal
-Reasoning](https://scholarship.richmond.edu/cgi/viewcontent.cgi?article=1228&context=jolt) and ![Image](https://scholarship.richmond.edu/cgi/viewcontent.cgi?article=1228&context=jolt)
+[An Introduction to Artificial Intelligence and Legal Reasoning](https://scholarship.richmond.edu/cgi/viewcontent.cgi?article=1228&context=jolt) 
 ```
-https://scholarship.richmond.edu/cgi/viewcontent.cgi?article=1228&context=jolt
 
 For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/)
 
