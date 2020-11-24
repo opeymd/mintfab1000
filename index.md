@@ -2,7 +2,17 @@
 
 ## That Crazy #Mint #Hurt #Sit #Telepathic #Drone #Shitttt
 
-Would you just like to fuck my brain until Im dead? Maybe you will find invisible things out of this world and time. [(Kill this)](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
+Telepathic drones, inescts man made or alien. Unknown intelleigent insects working w us? MMhmmm. YOU might say.
+They respond to magnetic sound, vibration / intuition? Maybe the vibration or heat from the circuts drive them to seek escape. 
+
+// Existing research indicates another factor of anthropogenic origin, which might cause subtle adverse effects: the increasingly frequent use of artificial electromagnetic fields (EMF) such as high voltage, mobile telephony and Wi-Fi.
+https://www.emfdata.org/en/studies/detail&id=566
+
+
+/// "We observed that static MFs slow down the cockroach clock rhythm under dim UV light, consistent with results on the Drosophila circadian clock. Remarkably, 300 times weaker RF fields likewise slowed down the cockroach clock in a near-zero static magnetic field. This demonstrates that the internal clock of organisms can be sensitive to weak RF fields, consequently opening the possibility of an influence of man-made RF fields on many clock-dependent events in living systems."
+- https://rs.figshare.com/collections/Supplementary_material_from_Weak_radiofrequency_fields_affect_the_insect_circadian_clock_/4656158
+
+[(Kill this)](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
 
 <iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/112292322&color=%23343434&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/opeymd" title="@Y*^%$^%" target="_blank" style="color: #cccccc; text-decoration: none;">@Y*^%$^%</a> · <a href="https://soundcloud.com/opeymd/voodoo-project-174-bpm" title="Voodoo project (174 BPM)" target="_blank" style="color: #cccccc; text-decoration: none;">Voodoo project (174 BPM)</a></div>
 
