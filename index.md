@@ -6,7 +6,7 @@ Telepathic drones, inescts man made or alien. Unknown intelleigent insects worki
 They respond to magnetic sound, vibration / intuition? Maybe the vibration or heat from the circuts drive them to seek escape. [(Kill this)](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
 
 #### Existing research indicates another factor of anthropogenic origin, which might cause subtle adverse effects: the increasingly frequent use of artificial electromagnetic fields (EMF) such as high voltage, mobile telephony and Wi-Fi.
-https://www.emfdata.org/en/studies/detail&id=566
+- https://www.emfdata.org/en/studies/detail&id=566
 
 
 #### "We observed that static MFs slow down the cockroach clock rhythm under dim UV light, consistent with results on the Drosophila circadian clock. Remarkably, 300 times weaker RF fields likewise slowed down the cockroach clock in a near-zero static magnetic field. This demonstrates that the internal clock of organisms can be sensitive to weak RF fields, consequently opening the possibility of an influence of man-made RF fields on many clock-dependent events in living systems."
