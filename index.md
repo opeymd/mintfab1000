@@ -19,9 +19,7 @@ Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://j
 
 ## I DONT KNOW WHAT THE FUCK
 
-What the mind tap fuck. "Not good" no shit, fuck my brain with the devils breath playing God. Suck my d.i.c.k.
-A freaked out prisoner pissed off waiting to kill is a job well done. suck a dick.
-
+Sssssss sss s ns ns. s. s s sssss. s s s s s sssss s s s tsst sss s what? ???? sit suck my shit k? (AI torture machine / flip the script hack my brain good ol boys club toy is the "Real N****". k sweet cheeks
 
 _getrecords_
 - https://youtu.be/K8X9EsSYD9k
