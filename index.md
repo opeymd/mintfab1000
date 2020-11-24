@@ -2,9 +2,8 @@
 
 ## That Crazy #Mint #Hurt #Sit #Telepathic #Drone #Shitttt
 
-Telepathic drones, inescts man made or alien. Unknown intelleigent insects working w us? MMhmmm. YOU might say.[(Kill this)](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
-
-They respond to magnetic sound, vibration / intuition? Maybe the vibration or heat from the circuts drive them to seek escape. 
+Telepathic drones, inescts man made or alien. Unknown intelleigent insects working w us? MMhmmm. YOU might say.
+They respond to magnetic sound, vibration / intuition? Maybe the vibration or heat from the circuts drive them to seek escape. [(Kill this)](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
 
 #### Existing research indicates another factor of anthropogenic origin, which might cause subtle adverse effects: the increasingly frequent use of artificial electromagnetic fields (EMF) such as high voltage, mobile telephony and Wi-Fi.
 https://www.emfdata.org/en/studies/detail&id=566
