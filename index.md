@@ -21,17 +21,7 @@ Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://j
 
 Sssssss sss s ns ns. s. s s sssss. s s s s s sssss s s s tsst sss s what? ???? sit suck my shit k? (AI torture machine / flip the script hack my brain good ol boys club toy is the "Real N****". k sweet cheeks
 
-_getrecords_
-- https://youtu.be/K8X9EsSYD9k
-- https://youtu.be/a8WSX2T_r94
-- https://youtu.be/0VY7N1kv13c
-
 ### Mood To Kill
-- https://youtu.be/sy6stJLg28U
-- https://youtu.be/N1JVsTeoZdw
-
-<iframe width="100%" height="42" src="https://www.youtube.com/embed/sy6stJLg28U" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
 
 - money here
 - money here
