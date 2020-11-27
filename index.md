@@ -11,7 +11,7 @@ Maybe the aliens Want my mommy for experiments or the perfect excuse for organ m
 
 <iframe width="560" height="100" src="https://www.youtube.com/embed/Qow8pIvExH4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-(https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
+The_distinction_between_Primary_Properti.pdf
 
 //
 
