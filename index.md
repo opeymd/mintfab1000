@@ -8,8 +8,6 @@ Whats happening to me? "neuromorphic computing"
 Telepathic drones, inescts man made or alien. Unknown intelleigent insects working w us? MMhmmm. YOU might say.
 They respond to magnetic sound, vibration / intuition? Maybe the vibration or heat from the circuts drive them to seek escape. [(Kill this)](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
 
-/// 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B98QGSr_oYI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 //
 https://www.discogs.com/Cirrus-Back-On-A-Mission/master/123568
 
@@ -20,15 +18,11 @@ https://www.discogs.com/Cirrus-Back-On-A-Mission/master/123568
 **We observed that static MFs slow down the cockroach clock rhythm under dim UV light, consistent with results on the Drosophila circadian clock. Remarkably, 300 times weaker RF fields likewise slowed down the cockroach clock in a near-zero static magnetic field. This demonstrates that the internal clock of organisms can be sensitive to weak RF fields, consequently opening the possibility of an influence of man-made RF fields on many clock-dependent events in living systems._
 - [Weak_radiofrequency_fields_affect_the_insect_circadian_clock](https://rs.figshare.com/collections/Supplementary_material_from_Weak_radiofrequency_fields_affect_the_insect_circadian_clock_/4656158)
 
-<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/112292322&color=%23343434&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/opeymd" title="@Y*^%$^%" target="_blank" style="color: #cccccc; text-decoration: none;">@Y*^%$^%</a> · <a href="https://soundcloud.com/opeymd/voodoo-project-174-bpm" title="Voodoo project (174 BPM)" target="_blank" style="color: #cccccc; text-decoration: none;">Voodoo project (174 BPM)</a></div>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B98QGSr_oYI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
-### FUCKING BULLSHIT
-
-## I DONT KNOW WHAT THE FUCK
-
-Sssssss sss s ns ns. s. s s sssss. s s s s s sssss s s s tsst sss s what? ???? sit suck my shit k? (AI torture machine / flip the script hack my brain good ol boys club toy is the "Real N****". k sweet cheeks
+Sssssss sss s ns ns. s. s s sssss. s s s s s sssss s s s tsst sss s what? ???? siteeks
 
 ### Mood To Kill
 
