@@ -22,7 +22,10 @@ The_distinction_between_Primary_Properti.pdf
 - [Weak_radiofrequency_fields_affect_the_insect_circadian_clock](https://rs.figshare.com/collections/Supplementary_material_from_Weak_radiofrequency_fields_affect_the_insect_circadian_clock_/4656158)
 //
 
+<iframe width="560" height="315" src="(https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf)" allowfullscreen></iframe>
+
 [The_distinction_between_Primary_Properti.pdf](https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf)
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/B98QGSr_oYI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 <iframe width="560" height="315" src="https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf "frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
