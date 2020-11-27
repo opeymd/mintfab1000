@@ -1,9 +1,11 @@
 [Fuck evil Drones ->](https://opeymd.github.io/drone/)
 
-## That Crazy #Mint #Hurt #Sit #Telepathic #Drone #Shitttt
+## Bum Deal / NOT GOOD. #Mint #Hurt #Sit #Telepathic #Drone #Shitttt
 Telepathic drones, inescts man made or alien. Unknown intelleigent insects working w us? MMhmmm. YOU might say.
-They respond to magnetic sound, vibration / intuition? Maybe the vibration or heat from the circuts drive them to seek escape. 
-[Kill this](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
+They respond to magnetic sound, vibration / intuition? Maybe the vibration or heat from the circuts drive them to seek escape. So dont do nothing, sit. for another 25 or 41 years dont do anything shove the peanuts up ur ass.[Kill this](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
+
+### Stuff u shouldnt talk about. They have pills and beatdowns for such things ###
+Maybe the aliens Want my mommy for experiments or the perfect excuse for organ modification treatments because shes equal to worthless trash. Locked away memories so looser confused guy is what u get left.
 
 ## Whats happening? "neuromorphic computing" ##
 
