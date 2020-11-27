@@ -20,7 +20,7 @@ Maybe the aliens Want my mommy for experiments or the perfect excuse for organ m
 - [Weak_radiofrequency_fields_affect_the_insect_circadian_clock](https://rs.figshare.com/collections/Supplementary_material_from_Weak_radiofrequency_fields_affect_the_insect_circadian_clock_/4656158)
 //
 
-<iframe src="https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf" height="200" width="300" title="The_distinction_between_Primary_Properti.pdf"></iframe>
+<iframe src="https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf" height="400" width="100%" title="The_distinction_between_Primary_Properti.pdf"></iframe>
 
 [The_distinction_between_Primary_Properti.pdf](https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf)
 
