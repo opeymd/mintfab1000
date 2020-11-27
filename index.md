@@ -20,15 +20,11 @@ Maybe the aliens Want my mommy for experiments or the perfect excuse for organ m
 - [Weak_radiofrequency_fields_affect_the_insect_circadian_clock](https://rs.figshare.com/collections/Supplementary_material_from_Weak_radiofrequency_fields_affect_the_insect_circadian_clock_/4656158)
 //
 
-<iframe src="https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf" height="200" width="300" title="Iframe Example"></iframe>
-
-<iframe width="560" height="315" src="(https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf)" allowfullscreen></iframe>
+<iframe src="https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf" height="200" width="300" title="The_distinction_between_Primary_Properti.pdf"></iframe>
 
 [The_distinction_between_Primary_Properti.pdf](https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf)
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/B98QGSr_oYI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
-<iframe width="560" height="315" src="https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf "frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
