@@ -11,8 +11,6 @@ Maybe the aliens Want my mommy for experiments or the perfect excuse for organ m
 
 <iframe width="560" height="100" src="https://www.youtube.com/embed/Qow8pIvExH4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-The_distinction_between_Primary_Properti.pdf
-
 //
 
 **Existing research indicates another factor of anthropogenic origin, which might cause subtle adverse effects: the increasingly frequent use of artificial electromagnetic fields (EMF) such as high voltage, mobile telephony and Wi-Fi._
@@ -21,6 +19,8 @@ The_distinction_between_Primary_Properti.pdf
 **We observed that static MFs slow down the cockroach clock rhythm under dim UV light, consistent with results on the Drosophila circadian clock. Remarkably, 300 times weaker RF fields likewise slowed down the cockroach clock in a near-zero static magnetic field. This demonstrates that the internal clock of organisms can be sensitive to weak RF fields, consequently opening the possibility of an influence of man-made RF fields on many clock-dependent events in living systems._
 - [Weak_radiofrequency_fields_affect_the_insect_circadian_clock](https://rs.figshare.com/collections/Supplementary_material_from_Weak_radiofrequency_fields_affect_the_insect_circadian_clock_/4656158)
 //
+
+<iframe src="https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf" height="200" width="300" title="Iframe Example"></iframe>
 
 <iframe width="560" height="315" src="(https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf)" allowfullscreen></iframe>
 
