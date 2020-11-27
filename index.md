@@ -9,8 +9,8 @@ Telepathic drones, inescts man made or alien. Unknown intelleigent insects worki
 They respond to magnetic sound, vibration / intuition? Maybe the vibration or heat from the circuts drive them to seek escape. [(Kill this)](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
 
 //
-https://www.discogs.com/Cirrus-Back-On-A-Mission/master/123568
 
+<a href="https://www.discogs.com/Cirrus-Back-On-A-Mission/master/123568">Back-On-A-Mission</a>
 
 **Existing research indicates another factor of anthropogenic origin, which might cause subtle adverse effects: the increasingly frequent use of artificial electromagnetic fields (EMF) such as high voltage, mobile telephony and Wi-Fi._
 - [emfdata.org/en/studies/](https://www.emfdata.org/en/studies/detail&id=566)
