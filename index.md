@@ -20,8 +20,12 @@ The_distinction_between_Primary_Properti.pdf
 
 **We observed that static MFs slow down the cockroach clock rhythm under dim UV light, consistent with results on the Drosophila circadian clock. Remarkably, 300 times weaker RF fields likewise slowed down the cockroach clock in a near-zero static magnetic field. This demonstrates that the internal clock of organisms can be sensitive to weak RF fields, consequently opening the possibility of an influence of man-made RF fields on many clock-dependent events in living systems._
 - [Weak_radiofrequency_fields_affect_the_insect_circadian_clock](https://rs.figshare.com/collections/Supplementary_material_from_Weak_radiofrequency_fields_affect_the_insect_circadian_clock_/4656158)
+//
 
+[The_distinction_between_Primary_Properti.pdf](https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf)
 <iframe width="560" height="315" src="https://www.youtube.com/embed/B98QGSr_oYI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf "frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
