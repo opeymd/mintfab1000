@@ -10,8 +10,6 @@ They respond to magnetic sound, vibration / intuition? Maybe the vibration or he
 
 //
 
-<a href="https://www.discogs.com/Cirrus-Back-On-A-Mission/master/123568">Back-On-A-Mission</a>
-
 **Existing research indicates another factor of anthropogenic origin, which might cause subtle adverse effects: the increasingly frequent use of artificial electromagnetic fields (EMF) such as high voltage, mobile telephony and Wi-Fi._
 - [emfdata.org/en/studies/](https://www.emfdata.org/en/studies/detail&id=566)
 
@@ -23,6 +21,8 @@ They respond to magnetic sound, vibration / intuition? Maybe the vibration or he
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
 Sssssss sss s ns ns. s. s s sssss. s s s s s sssss s s s tsst sss s what? ???? siteeks
+//
+<a href="https://www.discogs.com/Cirrus-Back-On-A-Mission/master/123568">Back-On-A-Mission</a>
 
 ### Mood To Kill
 
