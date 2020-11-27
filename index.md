@@ -11,19 +11,18 @@ Maybe the aliens Want my mommy for experiments or the perfect excuse for organ m
 
 <iframe width="560" height="100" src="https://www.youtube.com/embed/Qow8pIvExH4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-//
+## Existing research indicates another factor of anthropogenic origin, which might cause subtle adverse effects: the increasingly frequent use of artificial electromagnetic fields (EMF) such as high voltage, mobile telephony and Wi-Fi.
 
-```**Existing research indicates another factor of anthropogenic origin, which might cause subtle adverse effects: the increasingly frequent use of artificial electromagnetic fields (EMF) such as high voltage, mobile telephony and Wi-Fi.
-```
 * [emfdata.org/en/studies/](https://www.emfdata.org/en/studies/detail&id=566)
 
-```**We observed that static MFs slow down the cockroach clock rhythm under dim UV light, consistent with results on the Drosophila circadian clock. Remarkably, 300 times weaker RF fields likewise slowed down the cockroach clock in a near-zero static magnetic field. This demonstrates that the internal clock of organisms can be sensitive to weak RF fields, consequently opening the possibility of an influence of man-made RF fields on many clock-dependent events in living systems.
-```
+## This demonstrates that the internal clock of organisms can be sensitive to weak RF fields, consequently opening the possibility of an influence of man-made RF fields on many clock-dependent events in living systems.
+
 * [Weak_radiofrequency_fields_affect_the_insect_circadian_clock](https://rs.figshare.com/collections/Supplementary_material_from_Weak_radiofrequency_fields_affect_the_insect_circadian_clock_/4656158)
 
 // [The_distinction_between_Primary_Properti.pdf](https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf)
 
 ***This new doctrine of properties-qualities is one of the elements of Galileo’s natural philosophy that make our common-sense pictures of objects in particular, and nature as a whole, illusory. Galileo argued that – contrary to our intuition – the sun does not move around the earth. He also argued in his new theory of motion, which he developed in the second part of his Dialogo (1632), that we don’t need a force to maintain the motion of a heavy body in a horizontal plane. On the contrary, we need an external force to stop such motion. And, importantly for this discussion, bodies in particular and corporeal substance in general do not have any sensible qualities such as odors, sounds or colors. On the contrary, our imagination (“imaginazione”) simply attributes these qualities to external bodies, so that they can be stripped off again by means of our imagination (see Galilei, 1890-1909: VI, 348). Primary properties, by way of contrast, cannot be stripped off. For example, a ball would not be the same body if we stripped off its spherical form. Galileo would argue that it can be geometrically demonstrated with certainty that the ball is spherical and not triangular or cubic.
+
 <iframe src="https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf" height="400" width="100%" title="The_distinction_between_Primary_Properti.pdf"></iframe>
 
 Sssssss sss s ns ns. s. s s sssss. s s s s s sssss s s s tsst sss s what? ???? siteeks
