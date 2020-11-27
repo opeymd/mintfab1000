@@ -4,9 +4,15 @@
 
 Whats happening to me? "neuromorphic computing"
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Qow8pIvExH4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="260" height="315" src="https://www.youtube.com/embed/Qow8pIvExH4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 Telepathic drones, inescts man made or alien. Unknown intelleigent insects working w us? MMhmmm. YOU might say.
 They respond to magnetic sound, vibration / intuition? Maybe the vibration or heat from the circuts drive them to seek escape. [(Kill this)](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
+
+/// 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B98QGSr_oYI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+//
+https://www.discogs.com/Cirrus-Back-On-A-Mission/master/123568
+
 
 **Existing research indicates another factor of anthropogenic origin, which might cause subtle adverse effects: the increasingly frequent use of artificial electromagnetic fields (EMF) such as high voltage, mobile telephony and Wi-Fi._
 - [emfdata.org/en/studies/](https://www.emfdata.org/en/studies/detail&id=566)
