@@ -2,7 +2,7 @@
 
 ## That Crazy #Mint #Hurt #Sit #Telepathic #Drone #Shitttt
 Telepathic drones, inescts man made or alien. Unknown intelleigent insects working w us? MMhmmm. YOU might say.
-They respond to magnetic sound, vibration / intuition? Maybe the vibration or heat from the circuts drive them to seek escape. [(Kill this)]
+They respond to magnetic sound, vibration / intuition? Maybe the vibration or heat from the circuts drive them to seek escape. (Kill this)](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
 
 ## Whats happening? "neuromorphic computing" ##
 
