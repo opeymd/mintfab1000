@@ -28,6 +28,11 @@ Maybe the aliens Want my mommy for experiments or the perfect excuse for organ m
 
 **** Sssssss sss s ns ns. s. s s sssss. s s s s s sssss s s s tsst sss s what? ???? siteeks
 
+# Graphite
+- [in Post-Globalized Industry](https://www.eetasia.com/us-chips-act-takes-center-stage-in-post-globalized-industry/)
+- 
+- [Graphite for Electromagnetic Wave Absorption](https://blog.ohiocarbonblank.com/u-s-military-nuclear-energy-plants-use-graphite-eletcromagnetic-wave-absorption/)
+
 <a href="https://www.discogs.com/Cirrus-Back-On-A-Mission/master/123568">Back-On-A-Mission</a>
 
 ### FUCK IT IT"S JUST MOTHERFUCKING LIFE OR DEATH
