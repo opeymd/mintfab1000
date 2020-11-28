@@ -30,11 +30,13 @@ Maybe the aliens Want my mommy for experiments or the perfect excuse for organ m
 
 <a href="https://www.discogs.com/Cirrus-Back-On-A-Mission/master/123568">Back-On-A-Mission</a>
 
-...https://youtu.be/ho6zJn2Pirc...
-### Mood To Kill
-
+### [Mood To Kill](https://youtu.be/sy6stJLg28U)
+```
+** https://youtu.be/ho6zJn2Pirc
+** 
+```
 - money here
-- - Too school for Facebook tunes Errone NEEDS to enjoi 
+- - Too school for whatever everyone NEEDS to enjoy 
 <iframe width="560" height="50" src="https://www.youtube.com/embed/UiGcoaVDfIs" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 - - - money here
 - - - - sex n drugs n bugs here - teeny insect drones telepathic "systematic purpose?" 
