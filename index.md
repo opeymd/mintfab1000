@@ -30,7 +30,9 @@ Maybe the aliens Want my mommy for experiments or the perfect excuse for organ m
 
 <a href="https://www.discogs.com/Cirrus-Back-On-A-Mission/master/123568">Back-On-A-Mission</a>
 
-### [Mood To Kill](https://youtu.be/sy6stJLg28U)
+### [Mood To Kill](https://youtu.be/sy6stJLg28U) 
+<a href="https://youtu.be/sy6stJLg28U" target="_blank">Visit Mood To Kill</a>
+
 ```
 ** https://youtu.be/ho6zJn2Pirc
 ** 
