@@ -24,8 +24,10 @@ Maybe the aliens Want my mommy for experiments or the perfect excuse for organ m
 
 
 ## Brain Weapon 
-
+[weaponizing-the-brain-neuroscience-advancements-spark-debate](https://www.nationaldefensemagazine.org/articles/2017/5/11/weaponizing-the-brain-neuroscience-advancements-spark-debate)
 These include the use of various drugs and forms of neurotechnologies such as neurofeedback, transcranial electrical and magnetic stimulation, and perhaps even implantable devices for training and performance optimization of intelligence and combat personnel. Brain-computer interfaces could be used to control aircraft, boats or unmanned vehicles. Military and warfare uses also entail the development and engagement of agents — such as drugs, microbes, toxins — and “devices as weapons,” also called neuroweapons, to affect the nervous system and modify opponents’ thoughts, feelings, senses, actions, health or — in some cases — to incur lethal consequences.  
+
+[narrative-networks](https://www.darpa.mil/program/narrative-networks)
 
 
 ## The_distinction_between_Primary_Properti.pdf
