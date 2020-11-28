@@ -44,7 +44,9 @@ Maybe the aliens Want my mommy for experiments or the perfect excuse for organ m
 - - - - .
 <iframe width="100%" height="50" src="https://www.youtube.com/embed/gmb5ikP3GWE" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 - - - - sex n drugs n bugs here - teeny insect drones telepathic "systematic purpose?" 
-
+- back to my bitchass ME.
+<iframe width="100%" height="50" src="https://www.youtube.com/embed/FpNkSanicMI?controls=0" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<br> 
 <iframe style="border: 0; width: 100%; height: 42px;" src="https://bandcamp.com/EmbeddedPlayer/album=2652968343/size=small/bgcol=333333/linkcol=e99708/transparent=true/" seamless><a href="https://dubplates.techitch.com/album/plate-003">PLATE 003 by TECHNICAL ITCH</a></iframe>
 
 
