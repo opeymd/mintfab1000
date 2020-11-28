@@ -9,7 +9,7 @@ Maybe the aliens Want my mommy for experiments or the perfect excuse for organ m
 
 ## Whats happening? "neuromorphic computing" ##
 
-<iframe width="560" height="100" src="https://www.youtube.com/embed/Qow8pIvExH4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="100" src="https://www.youtube.com/embed/Qow8pIvExH4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Existing research indicates another factor of anthropogenic origin, which might cause subtle adverse effects: the increasingly frequent use of artificial electromagnetic fields (EMF) such as high voltage, mobile telephony and Wi-Fi.
 
@@ -39,8 +39,10 @@ Maybe the aliens Want my mommy for experiments or the perfect excuse for organ m
 ```
 - money here
 - - Too school for whatever everyone NEEDS to enjoy 
-<iframe width="560" height="50" src="https://www.youtube.com/embed/UiGcoaVDfIs" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="50" src="https://www.youtube.com/embed/UiGcoaVDfIs" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 - - - money here
+- - - - .
+<iframe width="100%" height="50" src="https://www.youtube.com/embed/gmb5ikP3GWE" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 - - - - sex n drugs n bugs here - teeny insect drones telepathic "systematic purpose?" 
 
 <iframe style="border: 0; width: 100%; height: 42px;" src="https://bandcamp.com/EmbeddedPlayer/album=2652968343/size=small/bgcol=333333/linkcol=e99708/transparent=true/" seamless><a href="https://dubplates.techitch.com/album/plate-003">PLATE 003 by TECHNICAL ITCH</a></iframe>
