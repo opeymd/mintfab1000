@@ -11,6 +11,8 @@ Maybe the aliens Want my mommy for experiments or the perfect excuse for organ m
 
 <iframe width="100%" height="100" src="https://www.youtube.com/embed/Qow8pIvExH4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
+# [Crazy](https://youtu.be/NM7hdDZN2YI)
+
 ## Existing research indicates another factor of anthropogenic origin, which might cause subtle adverse effects: the increasingly frequent use of artificial electromagnetic fields (EMF) such as high voltage, mobile telephony and Wi-Fi.
 
 * [emfdata.org/en/studies/](https://www.emfdata.org/en/studies/detail&id=566)
