@@ -44,32 +44,6 @@ These include the use of various drugs and forms of neurotechnologies such as ne
 - 
 - [Graphite for Electromagnetic Wave Absorption](https://blog.ohiocarbonblank.com/u-s-military-nuclear-energy-plants-use-graphite-eletcromagnetic-wave-absorption/)
 
-<a href="https://www.discogs.com/Cirrus-Back-On-A-Mission/master/123568">Back-On-A-Mission</a>
-
-### FUCK IT IT"S JUST MOTHERFUCKING LIFE OR DEATH
-//// better than me<a href="https://youtu.be/sy6stJLg28U" target="_blank">Mood To Kill</a>
-
-```
-** https://youtu.be/ho6zJn2Pirc
-** 
-```
-- money here 
-<iframe width="100%" height="50" src="https://www.youtube.com/embed/UiGcoaVDfIs" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-- - - money here
-- - - - .
-<iframe width="100%" height="50" src="https://www.youtube.com/embed/gmb5ikP3GWE" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-- - - - sex n drugs n bugs here - teeny insect drones telepathic "systematic purpose?" 
-- sex n drugs n money here.
-<iframe width="100%" height="50" src="https://www.youtube.com/embed/FpNkSanicMI?controls=0" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-- - - more sex and more bug money here
-- - - - - - no sound and beatdowns here 
-<iframe width="100%" height="50" src="https://www.youtube.com/embed/EhZFzQTBjRM" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<br> 
-<iframe style="border: 0; width: 100%; height: 42px;" src="https://bandcamp.com/EmbeddedPlayer/album=2652968343/size=small/bgcol=333333/linkcol=e99708/transparent=true/" seamless><a href="https://dubplates.techitch.com/album/plate-003">PLATE 003 by TECHNICAL ITCH</a></iframe>
-- - - more and more money here 
-## ++
-<iframe width="100%" height="50" src="https://www.youtube.com/embed/-xHbJArCmnQ" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
 
 ### Markdown
 
