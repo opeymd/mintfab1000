@@ -22,12 +22,16 @@ Maybe the aliens Want my mommy for experiments or the perfect excuse for organ m
 * [Weak_radiofrequency_fields_affect_the_insect_circadian_clock](https://rs.figshare.com/collections/Supplementary_material_from_Weak_radiofrequency_fields_affect_the_insect_circadian_clock_/4656158)
 
 
-
 ## Brain Weapon 
 [weaponizing-the-brain-neuroscience-advancements-spark-debate](https://www.nationaldefensemagazine.org/articles/2017/5/11/weaponizing-the-brain-neuroscience-advancements-spark-debate)
 These include the use of various drugs and forms of neurotechnologies such as neurofeedback, transcranial electrical and magnetic stimulation, and perhaps even implantable devices for training and performance optimization of intelligence and combat personnel. Brain-computer interfaces could be used to control aircraft, boats or unmanned vehicles. Military and warfare uses also entail the development and engagement of agents — such as drugs, microbes, toxins — and “devices as weapons,” also called neuroweapons, to affect the nervous system and modify opponents’ thoughts, feelings, senses, actions, health or — in some cases — to incur lethal consequences.  
 
 [narrative-networks](https://www.darpa.mil/program/narrative-networks)
+
+# Graphite
+- [in Post-Globalized Industry](https://www.eetasia.com/us-chips-act-takes-center-stage-in-post-globalized-industry/)
+- 
+- [Graphite for Electromagnetic Wave Absorption](https://blog.ohiocarbonblank.com/u-s-military-nuclear-energy-plants-use-graphite-eletcromagnetic-wave-absorption/)
 
 
 ## The_distinction_between_Primary_Properti.pdf
@@ -38,12 +42,6 @@ These include the use of various drugs and forms of neurotechnologies such as ne
 [The_distinction_between_Primary_Properti.pdf](https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf)
 
 **** Sssssss sss s ns ns. s. s s sssss. s s s s s sssss s s s tsst sss s what? ???? siteeks
-
-# Graphite
-- [in Post-Globalized Industry](https://www.eetasia.com/us-chips-act-takes-center-stage-in-post-globalized-industry/)
-- 
-- [Graphite for Electromagnetic Wave Absorption](https://blog.ohiocarbonblank.com/u-s-military-nuclear-energy-plants-use-graphite-eletcromagnetic-wave-absorption/)
-
 
 ### Markdown
 
