@@ -50,7 +50,7 @@ These include the use of various drugs and forms of neurotechnologies such as ne
 [GET- The_distinction_between_Primary_Properti.pdf](https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf)
 
 
-<video controls width="250">
+<video controls width="100%" height="100%">
 
     <source src="https://opeymd.github.io/mintfab1000/secrettelepathic orgy.MP4"
             type="video/mp4">
