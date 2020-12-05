@@ -36,6 +36,10 @@ These include the use of various drugs and forms of neurotechnologies such as ne
 - 
 - [Graphite for Electromagnetic Wave Absorption](https://blog.ohiocarbonblank.com/u-s-military-nuclear-energy-plants-use-graphite-eletcromagnetic-wave-absorption/)
 
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/6ArBZ-ajzGI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+[GET- secrettelepathic orgy](https://opeymd.github.io/mintfab1000/secrettelepathic orgy.MP4)
+
 # Galileo argued that – contrary to our intuition – the sun does not move around the earth. He also argued in his new theory of motion, which he developed in the second part of his Dialogo (1632), that we don’t need a force to maintain the motion of a heavy body in a horizontal plane.
 
 ## The_distinction_between_Primary_Properti.pdf
@@ -44,10 +48,6 @@ These include the use of various drugs and forms of neurotechnologies such as ne
 
 <iframe src="https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf" height="200" width="100%" title="The_distinction_between_Primary_Properti.pdf"></iframe>
 [GET- The_distinction_between_Primary_Properti.pdf](https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf)
-
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/6ArBZ-ajzGI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
-[GET- secrettelepathic orgy](https://opeymd.github.io/mintfab1000/secrettelepathic orgy.MP4)
 
 **** Sssssss sss s ns ns. s. s s sssss. s s s s s sssss s s s tsst sss s what? ???? siteeks
 
