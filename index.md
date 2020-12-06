@@ -39,13 +39,7 @@ These include the use of various drugs and forms of neurotechnologies such as ne
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/6ArBZ-ajzGI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <li>
     
-<video controls width="100%" height="100%">
 
-    <source src="https://opeymd.github.io/mintfab1000/secrettelepathic orgy.MP4"
-            type="video/mp4">
-
-    Sorry, your browser doesn't support embedded videos.
-</video>
 [GET- secrettelepathic orgy](https://opeymd.github.io/mintfab1000/secrettelepathic orgy.MP4)
 
 # Galileo argued that – contrary to our intuition – the sun does not move around the earth. He also argued in his new theory of motion, which he developed in the second part of his Dialogo (1632), that we don’t need a force to maintain the motion of a heavy body in a horizontal plane.
