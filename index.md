@@ -20,11 +20,13 @@ Maybe the aliens Want my mommy for experiments or the perfect excuse for organ m
 
 <iframe width="100%" height="150" src="https://www.youtube.com/embed/B98QGSr_oYI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-## This demonstrates that the internal clock of organisms can be sensitive to weak RF fields, consequently opening the possibility of an influence of man-made RF fields on many clock-dependent events in living systems.
+# BREAK 
 
-[Weak_radiofrequency_fields_affect_the_insect_circadian_clock](https://rs.figshare.com/collections/Supplementary_material_from_Weak_radiofrequency_fields_affect_the_insect_circadian_clock_/4656158)
+# [Weak_radiofrequency_fields_affect_the_insect_circadian_clock](https://rs.figshare.com/collections/Supplementary_material_from_Weak_radiofrequency_fields_affect_the_insect_circadian_clock_/4656158)
 
-## Brain Weapon 
+#### This demonstrates that the internal clock of organisms can be sensitive to weak RF fields, consequently opening the possibility of an influence of man-made RF fields on many clock-dependent events in living systems.
+
+# Brain Weapon 
 [weaponizing-the-brain-neuroscience-advancements-spark-debate](https://www.nationaldefensemagazine.org/articles/2017/5/11/weaponizing-the-brain-neuroscience-advancements-spark-debate)
 These include the use of various drugs and forms of neurotechnologies such as neurofeedback, transcranial electrical and magnetic stimulation, and perhaps even implantable devices for training and performance optimization of intelligence and combat personnel. Brain-computer interfaces could be used to control aircraft, boats or unmanned vehicles. Military and warfare uses also entail the development and engagement of agents — such as drugs, microbes, toxins — and “devices as weapons,” also called neuroweapons, to affect the nervous system and modify opponents’ thoughts, feelings, senses, actions, health or — in some cases — to incur lethal consequences.  
 
