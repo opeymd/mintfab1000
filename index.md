@@ -22,8 +22,7 @@ Maybe the aliens Want my mommy for experiments or the perfect excuse for organ m
 
 ## This demonstrates that the internal clock of organisms can be sensitive to weak RF fields, consequently opening the possibility of an influence of man-made RF fields on many clock-dependent events in living systems.
 
-* [Weak_radiofrequency_fields_affect_the_insect_circadian_clock](https://rs.figshare.com/collections/Supplementary_material_from_Weak_radiofrequency_fields_affect_the_insect_circadian_clock_/4656158)
-
+[Weak_radiofrequency_fields_affect_the_insect_circadian_clock](https://rs.figshare.com/collections/Supplementary_material_from_Weak_radiofrequency_fields_affect_the_insect_circadian_clock_/4656158)
 
 ## Brain Weapon 
 [weaponizing-the-brain-neuroscience-advancements-spark-debate](https://www.nationaldefensemagazine.org/articles/2017/5/11/weaponizing-the-brain-neuroscience-advancements-spark-debate)
@@ -37,8 +36,6 @@ These include the use of various drugs and forms of neurotechnologies such as ne
 - [Graphite for Electromagnetic Wave Absorption](https://blog.ohiocarbonblank.com/u-s-military-nuclear-energy-plants-use-graphite-eletcromagnetic-wave-absorption/)
 
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/6ArBZ-ajzGI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<li>
-    
 
 [GET- secrettelepathic orgy](https://opeymd.github.io/mintfab1000/secrettelepathic orgy.MP4)
 
@@ -51,9 +48,7 @@ These include the use of various drugs and forms of neurotechnologies such as ne
 <iframe src="https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf" height="200" width="100%" title="The_distinction_between_Primary_Properti.pdf"></iframe>
 
 ## Wet
-<li> 1
-    <li> 2
-        <li> 3 [GET- The_distinction_between_Primary_Properti.pdf](https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf)
+3 [GET](https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf)
 
 **** Sssssss sss s ns ns. s. s s sssss. s s s s s sssss s s s tsst sss s what? ???? siteeks
 
