@@ -47,11 +47,14 @@ These include the use of various drugs and forms of neurotechnologies such as ne
 
 ****This new doctrine of properties-qualities is one of the elements of Galileo’s natural philosophy that make our common-sense pictures of objects in particular, and nature as a whole, illusory. Galileo argued that – contrary to our intuition – the sun does not move around the earth. He also argued in his new theory of motion, which he developed in the second part of his Dialogo (1632), that we don’t need a force to maintain the motion of a heavy body in a horizontal plane. On the contrary, we need an external force to stop such motion. And, importantly for this discussion, bodies in particular and corporeal substance in general do not have any sensible qualities such as odors, sounds or colors. On the contrary, our imagination (“imaginazione”) simply attributes these qualities to external bodies, so that they can be stripped off again by means of our imagination (see Galilei, 1890-1909: VI, 348). Primary properties, by way of contrast, cannot be stripped off. For example, a ball would not be the same body if we stripped off its spherical form. Galileo would argue that it can be geometrically demonstrated with certainty that the ball is spherical and not triangular or cubic.
 
-<iframe src="https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf" height="200" width="100%" title="The_distinction_between_Primary_Properti.pdf"></iframe>
+<iframe src="https://opeymd.github.io/mintfab1000/The_Divine_Comedy.pdf" height="200" width="100%" title="The_Divine_Comedy.pdf"></iframe>
 
 ## Wet
 3 [GET](https://opeymd.github.io/mintfab1000/The_distinction_between_Primary_Properti.pdf)
 
+4 [GET](https://opeymd.github.io/mintfab1000/The_Divine_Comedy.pdf)
+
+The_Divine_Comedy.pdf
 **** Sssssss sss s ns ns. s. s s sssss. s s s s s sssss s s s tsst sss s what? ???? siteeks
 
 ### Markdown
