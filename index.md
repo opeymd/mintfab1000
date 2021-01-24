@@ -1,5 +1,6 @@
 [Fuck evil Drones ->](https://opeymd.github.io/drone/)
 
+# WHO that be fucking my brain. UR done b. Bet.
 ## Bum Deal / NOT GOOD. #Mint #Hurt #Sit #Telepathic #Drone #Shitttt
 Telepathic drones, inescts man made or alien. Unknown intelleigent insects working w us? MMhmmm. YOU might say.
 They respond to magnetic sound, vibration / intuition? Maybe the vibration or heat from the circuts drive them to seek escape. So dont do nothing, sit. for another 25 or 41 years dont do anything shove the peanuts up ur ass.[Kill this](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
