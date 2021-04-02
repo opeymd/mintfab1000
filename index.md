@@ -1,6 +1,8 @@
 [Fuck evil Drones ->](https://opeymd.github.io/drone/)
 
-# Out of #Apple #Wu-tang and #Emenem blowing up my #earholes someone keeps calling me a #NIGGER and fucking my brain w #Telepathy contantly. ONE MORE FAGGOT TELL ME TO HURT CAN SUCK MY ASSSSSSSHOLE. PERIOD
+## Out of #Apple #Wu-tang and #Emenem blowing up my #earholes someone keeps calling me a #NIGGER and fucking my brain w #Telepathy contantly. ONE MORE FAGGOT TELL ME TO HURT CAN SUCK MY ASSSSSSSHOLE. PERIOD
+<iframe width="100%" height="300" src="https://www.youtube.com/embed/Qow8pIvExH4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 people get killed over things like this. TELL PIECE OF SHIT SYSTEM TO QUIT CALLING PEOPLE NIGGER. OK????????
 
 
@@ -13,8 +15,6 @@ They respond to magnetic sound, vibration / intuition? Maybe the vibration or he
 Maybe the aliens Want my mommy for experiments or the perfect excuse for organ modification treatments because shes equal to worthless trash. Locked away memories so looser confused guy is what u get left.
 
 ## Whats happening? "neuromorphic computing" ##
-
-<iframe width="100%" height="100" src="https://www.youtube.com/embed/Qow8pIvExH4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 # [Crazy](https://youtu.be/NM7hdDZN2YI)
 <iframe width="100%" height="115" src="https://www.youtube.com/embed/NM7hdDZN2YI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
