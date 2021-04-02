@@ -2,6 +2,7 @@
 
 ## Out of #Apple #Wu-tang and #Emenem blowing up my #earholes someone keeps calling me a #NIGGER and fucking my brain w #Telepathy contantly. ONE MORE FAGGOT TELL ME TO HURT CAN SUCK MY ASSSSSSSHOLE. PERIOD
 <iframe width="100%" height="300" src="https://www.youtube.com/embed/Qow8pIvExH4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+[Kill this](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
 
 1. 4/2/21 woken up again at 6am by satelite, this time some english punk saying i thought you were better than everyone. This is resentment from a facebook post, the post saying "Im the best person I know" which is true. Pisses people off especially my brain stalker rapists. 
 2. Like clock work, some black dude seeming from the wu says make amends to girl. These punks use my younger years of experience to try and make me live in fear and resentment. During praying for the stalker abusers, they made it clear in my ear my prayers wont work, saying during prayer, "that wont work" multiple times.
@@ -19,7 +20,6 @@ Push a bunch of money, you might want to die.
 8:22 I want that niggy out. Custurd.
 8:24 Wu broke real important w linda... I hope you die
 TELL PIECE OF SHIT SYSTEM TO QUIT CALLING PEOPLE NIGGER. OK????????.
-[Kill this](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
 
 ## TV assult time
 8:29 bumb deal. So.... its hit. ur not that important. ur a nigger. get so high. pull pump a dick. ur a asshole. so you know dont get high (have not got high for 14 years fags, i will need crack for that)
@@ -28,7 +28,16 @@ its danchall, in my eyes, sit there, youn are high its all cleveland, sit ss s s
 9:04 be the nigger. get out that invintory. he said stay right there now get ur apple now get high. haha. now get ur dick hard. ur a facinate. 
 9:13 you might die there (laying in my bed) your a nigger, (chest and hart are killing me draining my energy and feeling fabricated stress and pulses through my chest and hart). 
 9:20 what a bumb day. its that crystal. u are arrested for that invt by apple (about the 50th time I heard that) suck heat not a great deal. just rememner ur a nigger I dont want that invintory. not a good deal. great deal. its not cleveland. 
-its all of that invntry ur a nigger. professional heat. so.... 
+its all of that invntry ur a nigger. professional heat. so.... dont be asshole get dick hard get out invintory
+your a nigger u have real dick smell ur in detention. get so high right there. get so high get so hard. masturbate, its not ur day. 
+10:03 crystal system not good out side, (TV) now sit there. Just get ur dick hard, just get ur money, u need it=, there, (Outside) theres money.
+Your a nigger cuz u dont trust me. suck a dick. its not cleve its not crystal.
+tomorow is real hot in question. ur a nigger. 
+you had a dollar now ur burnt. boooo. 
+
+I HAD ENOUGH.... What about when i was 17 when the machine called me nigger for 5 hours??? huh?? got a lot of talking to do. wanna pump my dick?
+what about the dr lying on me pushing more poison down me when honestly wanting to get well, huh? still talking shit but im in detention lol, crystal apple is a joke. lets go see a dr and 10 million patients about the above tech you use to destroy lives. 100 million$$$$$$ + fullimmunity is what I expect and all ur cash and jewelry too just cuz it sounds good niggaz. thats the deal. niggiezzz. deal w IT.  
+REPLY from one of the faggs; Get off it. Suck a dick thats the deal. (One minute after typing the above.) and in ur dick hole and money. (lol cant even by a pack a ciggs).
 
 ## Q and A with telepathic AI rapists. 
 Q. What else?
@@ -41,6 +50,10 @@ Q. What else
 A. Get a doggy
 Q. What else
 A. You aint high, you aint Ty, (aint cleveland- Through the sound of the keys typing), thrown out the window, thrown out the car, thats why you might die, thats cleveland, this aint a doggy, push not real good. tic toc, dick smell, crazy, push the door, push the doggie, I wouldnt push it, you are high, you arent muscle. you arent clevelnad. you arent smart. wish you would/wouldnt listen. HURT. eat pussy, time, you wish you had pussy, tic toc, tiger. push the backdoor doggy heat. cant face it. you aint a doggie you aint too good. burnt by a lot of muscle. i would punch you. 
+
+MORE INFO FROM APPLE? SYSTEM - TELEPATHABUSE
+not for you/ not too good. (the above) youngstown.
+sit there, so you know, this aint funny. so you know. this aint system-(outside). big deal-tv, its wutang ur apple. its there, thats solitary. touch the wind whos the nigger. sit there
 
 ### Stuff u shouldnt talk about. They have pills and beatdowns for such things ###
 Maybe the aliens Want my mommy for experiments or the perfect excuse for organ modification treatments because shes equal to worthless trash. Locked away memories so looser confused guy is what u get left.
