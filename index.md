@@ -3,13 +3,7 @@
 ## Out of #Apple #Wu-tang and #Emenem blowing up my #earholes someone keeps calling me a #NIGGER and fucking my brain w #Telepathy contantly. ONE MORE FAGGOT TELL ME TO HURT CAN SUCK MY ASSSSSSSHOLE. PERIOD
 <iframe width="100%" height="300" src="https://www.youtube.com/embed/Qow8pIvExH4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-people get killed over things like this. TELL PIECE OF SHIT SYSTEM TO QUIT CALLING PEOPLE NIGGER. OK????????
-
-
-# WHO that be fucking my brain. UR done b. Bet.
-## Bum Deal / NOT GOOD. #Mint #Hurt #Sit #Telepathic #Drone #Shitttt
-Telepathic drones, inescts man made or alien. Unknown intelleigent insects working w us? MMhmmm. YOU might say.
-They respond to magnetic sound, vibration / intuition? Maybe the vibration or heat from the circuts drive them to seek escape. So dont do nothing, sit. for another 25 or 41 years dont do anything shove the peanuts up ur ass.[Kill this](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
+people get killed over things like this. TELL PIECE OF SHIT SYSTEM TO QUIT CALLING PEOPLE NIGGER. OK????????.[Kill this](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
 
 ### Stuff u shouldnt talk about. They have pills and beatdowns for such things ###
 Maybe the aliens Want my mommy for experiments or the perfect excuse for organ modification treatments because shes equal to worthless trash. Locked away memories so looser confused guy is what u get left.
