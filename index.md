@@ -11,8 +11,14 @@
 6. 7:03 am We made it crystal by the door Mike (it snowd last night) Wait till self setting telepathic weather hits the market.
 This is why im 100% broke, can barely work and have 1 or 2 friends. 7:07 ("I made thier dick smell- get money and a dog.")
 Been hearing about this dog and crystal apple for weeks maybe months now, enough for it to be abuse. Simple cut and dry abuse. Crystal Apple is a whole other topic.
-people get killed over things like this. TELL PIECE OF SHIT SYSTEM TO QUIT CALLING PEOPLE NIGGER. OK????????.
+TELL PIECE OF SHIT SYSTEM TO QUIT CALLING PEOPLE NIGGER. OK????????.
 [Kill this](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
+
+## Q and A with telepathic AI rapists. 
+Q. What else?
+A. Eat a coockie, Die, Eat a crystal, Eat a nigger, eat a ewa, (ewa is some dude I hear about dont know why)
+Q. What do you want w me
+A. Whos emenem, whos crystal? - Whos Ray?, now ur fucked, now your apple. Who dollared whos backstreet, whos awake, whos mustard, whos money?
 
 ### Stuff u shouldnt talk about. They have pills and beatdowns for such things ###
 Maybe the aliens Want my mommy for experiments or the perfect excuse for organ modification treatments because shes equal to worthless trash. Locked away memories so looser confused guy is what u get left.
