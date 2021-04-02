@@ -8,8 +8,9 @@
 3. FACEBOOK abusing me constantly about my half sister demanding I make amends. Hearing I owe amends, wouldnt fuck her, eat a cookie, eat a cock, eat money, eat wu talk, who mike my nigger. 
 4. After asking what else, the one faggot said "eat a cookie". ALL THIS ABUSE IN JUST A HOUR (They just said "thats good" as I type, cuz Im a honkey one of thier fav things to call me besides nigger)
 5. EMENEM (or his AI wanna B) says this is all in my eye. Whats really in my eye is a nanotube.
-6 7:03 am We made it crystal by the door Mike (it snowd last night) Wait till self setting telepathic weather hits the market.
-This is why im 100% broke, can barely work and have 1 or 2 friends. 7:07 I made thier dick smell- get money and a dog.
+6. 7:03 am We made it crystal by the door Mike (it snowd last night) Wait till self setting telepathic weather hits the market.
+This is why im 100% broke, can barely work and have 1 or 2 friends. 7:07 ("I made thier dick smell- get money and a dog.")
+Been hearing about this dog and crystal apple for weeks maybe months now, enough for it to be abuse. Simple cut and dry abuse. Crystal Apple is a whole other topic.
 people get killed over things like this. TELL PIECE OF SHIT SYSTEM TO QUIT CALLING PEOPLE NIGGER. OK????????.
 [Kill this](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
 
