@@ -1,5 +1,9 @@
 [Fuck evil Drones ->](https://opeymd.github.io/drone/)
 
+# Out of #Apple #Wu-tang and #Emenem blowing up my #earholes someone keeps calling me a #NIGGER and fucking my brain w #Telepathy contantly. ONE MORE FAGGOT TELL ME TO HURT CAN SUCK MY ASSSSSSSHOLE. PERIOD
+people get killed over things like this. TELL PIECE OF SHIT SYSTEM TO QUIT CALLING PEOPLE NIGGER. OK????????
+
+
 # WHO that be fucking my brain. UR done b. Bet.
 ## Bum Deal / NOT GOOD. #Mint #Hurt #Sit #Telepathic #Drone #Shitttt
 Telepathic drones, inescts man made or alien. Unknown intelleigent insects working w us? MMhmmm. YOU might say.
