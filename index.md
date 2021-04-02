@@ -4,21 +4,39 @@
 <iframe width="100%" height="300" src="https://www.youtube.com/embed/Qow8pIvExH4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 1. 4/2/21 woken up again at 6am by satelite, this time some english punk saying i thought you were better than everyone. This is resentment from a facebook post, the post saying "Im the best person I know" which is true. Pisses people off especially my brain stalker rapists. 
-2. Like clock work, some black dude seeming from the wu says make amends to girl. These punks use my younger years of experience to try and make me live in fear and resentful. During praying for the stalker abusers, they made it clear in my ear my prayers wont work, saying during prayer, "that wont work" multiple times. I AINT AFRAID TO HIDE ANYTHING ABOUT NO GIRL OK #WU-CIA CUNTS OR WHOEVER YOU BE> LETS JUST SEE A PUNK CALL THE WU NIGGER> TO THIER FACE. 
+2. Like clock work, some black dude seeming from the wu says make amends to girl. These punks use my younger years of experience to try and make me live in fear and resentment. During praying for the stalker abusers, they made it clear in my ear my prayers wont work, saying during prayer, "that wont work" multiple times. LETS SEE ONE OF THE PUNKS CALL THE WU NIGGER> TO THIER FACE. 
 3. FACEBOOK abusing me constantly about my half sister demanding I make amends. Hearing I owe amends, wouldnt fuck her, eat a cookie, eat a cock, eat money, eat wu talk, who mike my nigger. 
 4. After asking what else, the one faggot said "eat a cookie". ALL THIS ABUSE IN JUST A HOUR (They just said "thats good" as I type, cuz Im a honkey one of thier fav things to call me besides nigger)
 5. EMENEM (or his AI wanna B) says this is all in my eye. Whats really in my eye is a nanotube.
 6. 7:03 am We made it crystal by the door Mike (it snowd last night) Wait till self setting telepathic weather hits the market.
 This is why im 100% broke, can barely work and have 1 or 2 friends. 7:07 ("I made thier dick smell- get money and a dog.")
 Been hearing about this dog and crystal apple for weeks maybe months now, enough for it to be abuse. Simple cut and dry abuse. Crystal Apple is a whole other topic.
+Push a bunch of money, you might want to die.
+8:03 it aint your day, your burnt. (In em voice) 8:11 its that dick smell for real, you wouldnt want any real muscle, push a backstreet, that all hurt(this typing), see im professional its tic toc.
+8:14 We'll hook ur mother up, not real awesome, not real earhole.
+8:16 That retard out the window, looking through the window, real truble
+8:19 quit being dumb, call ty, tired, calm down, this aint aunt lin lin (my aunt linda- her son Michael Bolton, makes faggot code for AI faggot machines. Mmhmm earholed as I type) Ear hole nigger then to infinity, whos calling me names Michael Bolton?????
+8:22 I want that niggy out. Custurd.
+8:24 Wu broke real important w linda... I hope you die
 TELL PIECE OF SHIT SYSTEM TO QUIT CALLING PEOPLE NIGGER. OK????????.
 [Kill this](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
+
+## TV assult time
+8:29 bumb deal. So.... its hit. ur not that important. ur a nigger. get so high. pull pump a dick. ur a asshole. so you know dont get high (have not got high for 14 years fags, i will need crack for that)
+esp is the deal. its crystal. you will die. have a good morning. you are real hit. cant prove in court of law. $1 hit. in ur eye. its incredible. ur a nigger. your/its real police in your eye (nanotube in my eyeball). whos at the door? Get your dick hard, Thats all thats not all. you dont win no award, sit. sit sit sits sit. ss ss s s sssss s sssit. 
+its danchall, in my eyes, sit there, youn are high its all cleveland, sit ss s sit.sit Ty earmarked see it aint your day thats quite actual. Get a kickstand, and bracelett, pull cleveland go bizerk. sry. earhole. i would dock it, Ty made ur dick smell. pull $1. ur awesome, cleveland. techno. i would stop it so you know. dont be a nigger quit ur bitching pull a program and that asshole, back to reg day. stop it. all in ur eye. it aint cleveland. just so you know. dont be niggers. pull light dont say nigger its not for you. ur a nigger. please dont die. now ur hit sorta to cleveland. not too good. get ready to masturbate. ur a bastard. uh ha. dont want water mark. gets to cleveland. dont be a bitch. pull earholes, mustard, its not ur day. Im not ur nigger. now be quiet. your a real nigger, and w children in your eye. now push to cleveland. respect it. pull cleveland. now sit there. its very spiritual its apple now ur hit sir, pull the wutang. u are so scary right now need to testify. pull every week, now see apple ah hah. ur a little niggy. get ur big book got to cleve. you are so high i would appreciate it. your a nigger its not your day. you have a attitude still. ur a nigger dick smell. so sorry about that. lets not talk about it, apples real hit whats in ur future. go to sleep to that music. thats not normal. 
 
 ## Q and A with telepathic AI rapists. 
 Q. What else?
 A. Eat a coockie, Die, Eat a crystal, Eat a nigger, eat a ewa, (ewa is some dude I hear about dont know why)
 Q. What do you want w me
 A. Whos emenem, whos crystal? - Whos Ray?, now ur fucked, now your apple. Who dollared whos backstreet, whos awake, whos mustard, whos money?
+Q. What else
+A. DIE
+Q. What else
+A. Get a doggy
+Q. What else
+A. You aint high, you aint Ty, (aint cleveland- Through the sound of the keys typing), thrown out the window, thrown out the car, thats why you might die, thats cleveland, this aint a doggy, push not real good. tic toc, dick smell, crazy, push the door, push the doggie, I wouldnt push it, you are high, you arent muscle. you arent clevelnad. you arent smart. wish you would/wouldnt listen. HURT. eat pussy, time, you wish you had pussy, tic toc, tiger. push the backdoor doggy heat. cant face it. you aint a doggie you aint too good. burnt by a lot of muscle. i would punch you. 
 
 ### Stuff u shouldnt talk about. They have pills and beatdowns for such things ###
 Maybe the aliens Want my mommy for experiments or the perfect excuse for organ modification treatments because shes equal to worthless trash. Locked away memories so looser confused guy is what u get left.
