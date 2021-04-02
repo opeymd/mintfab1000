@@ -37,6 +37,21 @@ you had a dollar now ur burnt. boooo.
 
 1:15 your all a nigger 5x at least within 10 min. ah huh. your real hit, its that pro. *TV me and ty have same prob, pull poop stck. eat a wu stick eat a lot of money (eating cereal). eat another dumb nigger eat another tragedy. not good, in ur eye. smoke it go ahead. 
 
+3:35 pm *TV your mom needs killed, *outside mmhmm so dont smoke, *TV thats crystal apple. All one sentence
+spin golden record, then dont!
+
+What else??? TV you will never get married - thats just a rumor outside, urs a nigger, and that aint good its clevelands, thaat (this logging of rape) aint no type of program
+3:42 you need a dr in ur ass, brush ur teeth ur a nigger. (didnt brush yet second time it said to brush.)
+he got that jackpot just in case. urs a nigger. now ty s. work program
+3:44 *TV im a retard. yp0ur arrested now for 30 days. (last time niggers said 18 days 20 min ago. that a real nigger for you, no wonder it calls me the real nigger + not ONE thing to put me in jail for other than I hear the nigger)
+3:47 Your a ass. hes tired. its system. hes right, in your eye, that isnt mike diana, your so high, ah hah
+masrer P is so special, wigger. (Aint looking forward to master P)
+3:52 *Outside, threw out a towel. *TV Kim bums deal. basterd, so you, special festival for sure,
+3:55 ur a nigger, its for protection (Cuz I started talking about that possiblity, its all lie)
+*TV dick hit, get ur apple. now go to prison. i dont have a choice ur a nigger. its a stupid point its holistic. good byes. good hit. 
+3:59 *TV suck that (telepathy,, just thinking how i hate these players.)
+
+
 I HAD ENOUGH.... What about when i was 17 when the machine called me nigger for 5 hours??? huh?? got a lot of talking to do. wanna pump my dick?
 what about the dr lying on me pushing more poison down me when honestly wanting to get well, huh? still talking shit but im in detention lol, crystal apple is a joke. lets go see a dr and 10 million patients about the above tech you use to destroy lives. 100 million$$$$$$ + fullimmunity is what I expect and all ur cash and jewelry too just cuz it sounds good niggaz. thats the deal. niggiezzz. deal w IT.  
 REPLY from one of the faggs; Get off it. Suck a dick thats the deal. (One minute after typing the above.) and in ur dick hole and money. (lol cant even by a pack a ciggs).
