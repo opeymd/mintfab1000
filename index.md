@@ -35,9 +35,15 @@ Your a nigger cuz u dont trust me. suck a dick. its not cleve its not crystal.
 tomorow is real hot in question. ur a nigger. 
 you had a dollar now ur burnt. boooo. 
 
+1:15 your all a nigger 5x at least within 10 min. ah huh. your real hit, its that pro. *TV me and ty have same prob, pull poop stck. eat a wu stick eat a lot of money (eating cereal). eat another dumb nigger eat another tragedy. not good, in ur eye. smoke it go ahead. 
+
 I HAD ENOUGH.... What about when i was 17 when the machine called me nigger for 5 hours??? huh?? got a lot of talking to do. wanna pump my dick?
 what about the dr lying on me pushing more poison down me when honestly wanting to get well, huh? still talking shit but im in detention lol, crystal apple is a joke. lets go see a dr and 10 million patients about the above tech you use to destroy lives. 100 million$$$$$$ + fullimmunity is what I expect and all ur cash and jewelry too just cuz it sounds good niggaz. thats the deal. niggiezzz. deal w IT.  
 REPLY from one of the faggs; Get off it. Suck a dick thats the deal. (One minute after typing the above.) and in ur dick hole and money. (lol cant even by a pack a ciggs).
+
+## Kim & Ty are loosers. Have fun w your dildos. 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SD93kUFAZho" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 
 ## Q and A with telepathic AI rapists. 
 Q. What else?
