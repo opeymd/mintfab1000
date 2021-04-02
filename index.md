@@ -3,6 +3,9 @@
 ## Out of #Apple #Wu-tang and #Emenem blowing up my #earholes someone keeps calling me a #NIGGER and fucking my brain w #Telepathy contantly. ONE MORE FAGGOT TELL ME TO HURT CAN SUCK MY ASSSSSSSHOLE. PERIOD
 <iframe width="100%" height="300" src="https://www.youtube.com/embed/Qow8pIvExH4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
+1. 4/2/21 woken up again at 6am by satelite, this time some english punk saying i thought you were better than everyone. This is resentment from a facebook post, the post saying "Im the best person I know" which is true. Pisses people off especially my brain stalker rapists. 
+2. Like clock work, some black dude seeming from the wu says make amends to girl. These punks use my younger years of experience to try and make me live in fear and and resentful. During praying for the stalker abusers, they made it clear in my ear my prayers wont work, saying during prayer, "that wont work" multiple times. I AINT AFRAID TO HIDE ANYTHING ABOUT NO GIRL OK #WU-CIA CUNTS OR WHOEVER YOU BE> LETS JUST SEE A PUNK CALL THE WU NIGGER> TO THIER FACE. 
+3. 
 people get killed over things like this. TELL PIECE OF SHIT SYSTEM TO QUIT CALLING PEOPLE NIGGER. OK????????.[Kill this](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
 
 ### Stuff u shouldnt talk about. They have pills and beatdowns for such things ###
