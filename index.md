@@ -4,9 +4,14 @@
 <iframe width="100%" height="300" src="https://www.youtube.com/embed/Qow8pIvExH4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 1. 4/2/21 woken up again at 6am by satelite, this time some english punk saying i thought you were better than everyone. This is resentment from a facebook post, the post saying "Im the best person I know" which is true. Pisses people off especially my brain stalker rapists. 
-2. Like clock work, some black dude seeming from the wu says make amends to girl. These punks use my younger years of experience to try and make me live in fear and and resentful. During praying for the stalker abusers, they made it clear in my ear my prayers wont work, saying during prayer, "that wont work" multiple times. I AINT AFRAID TO HIDE ANYTHING ABOUT NO GIRL OK #WU-CIA CUNTS OR WHOEVER YOU BE> LETS JUST SEE A PUNK CALL THE WU NIGGER> TO THIER FACE. 
-3. 
-people get killed over things like this. TELL PIECE OF SHIT SYSTEM TO QUIT CALLING PEOPLE NIGGER. OK????????.[Kill this](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
+2. Like clock work, some black dude seeming from the wu says make amends to girl. These punks use my younger years of experience to try and make me live in fear and resentful. During praying for the stalker abusers, they made it clear in my ear my prayers wont work, saying during prayer, "that wont work" multiple times. I AINT AFRAID TO HIDE ANYTHING ABOUT NO GIRL OK #WU-CIA CUNTS OR WHOEVER YOU BE> LETS JUST SEE A PUNK CALL THE WU NIGGER> TO THIER FACE. 
+3. FACEBOOK abusing me constantly about my half sister demanding I make amends. Hearing I owe amends, wouldnt fuck her, eat a cookie, eat a cock, eat money, eat wu talk, who mike my nigger. 
+4. After asking what else, the one faggot said "eat a cookie". ALL THIS ABUSE IN JUST A HOUR (They just said "thats good" as I type, cuz Im a honkey one of thier fav things to call me besides nigger)
+5. EMENEM (or his AI wanna B) says this is all in my eye. Whats really in my eye is a nanotube.
+6 7:03 am We made it crystal by the door Mike (it snowd last night) Wait till self setting telepathic weather hits the market.
+This is why im 100% broke, can barely work and have 1 or 2 friends. 7:07 I made thier dick smell- get money and a dog.
+people get killed over things like this. TELL PIECE OF SHIT SYSTEM TO QUIT CALLING PEOPLE NIGGER. OK????????.
+[Kill this](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
 
 ### Stuff u shouldnt talk about. They have pills and beatdowns for such things ###
 Maybe the aliens Want my mommy for experiments or the perfect excuse for organ modification treatments because shes equal to worthless trash. Locked away memories so looser confused guy is what u get left.
