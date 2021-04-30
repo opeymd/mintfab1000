@@ -1,19 +1,17 @@
-[Fuck evil Drones ->](https://opeymd.github.io/drone/)
+[Evil Drones ->](https://opeymd.github.io/drone/)
 
-## Secret Rape - GO AHEAD DO ALL YOU CAN TO GUILT TRIP ME
-### FBI - SUCK MY DICK
+## Secret Rape
+
+### FBI - Things i experience put into understandable terms
+(V2K) Voice to skull nearly 24/7 abuse. I think of something then hear a physical response in real time anywhere I go. These abusers need put in prison.
+
+Michael Bolton and Steve Wosniak I know for 100% fact. 
+///
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/6ArBZ-ajzGI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 [GET- secrettelepathic orgy](https://opeymd.github.io/mintfab1000/secrettelepathic orgy.MP4)
 ///
 <iframe width="100%" height="300" src="https://www.youtube.com/embed/Qow8pIvExH4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 [Kill this](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
-
-### The Future of Bioenhanced Super Soldiers, Pt. 1
-<iframe style="border: none" src="//html5-player.libsyn.com/embed/episode/id/15511988/height/90/theme/custom/thumbnail/yes/direction/backward/render-playlist/no/custom-color/061344/" height="90" width="100%" scrolling="no"  allowfullscreen webkitallowfullscreen mozallowfullscreen oallowfullscreen msallowfullscreen></iframe>
-
-### Cyborg Soldier 2050 CBC-TR-1599.pdf
-<iframe src="https://opeymd.github.io/mintfab1000/Cyborg_Soldier_2050.pdf" height="500" width="100%" title="Cyborg_Soldier_2050.pdf"></iframe>
-<br>
 >>> 
 >>> 
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/SD93kUFAZho" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
@@ -41,6 +39,13 @@ These include the use of various drugs and forms of neurotechnologies such as ne
 
 [narrative-networks](https://www.darpa.mil/program/narrative-networks)
 
+### The Future of Bioenhanced Super Soldiers, Pt. 1
+<iframe style="border: none" src="//html5-player.libsyn.com/embed/episode/id/15511988/height/90/theme/custom/thumbnail/yes/direction/backward/render-playlist/no/custom-color/061344/" height="90" width="100%" scrolling="no"  allowfullscreen webkitallowfullscreen mozallowfullscreen oallowfullscreen msallowfullscreen></iframe>
+
+### Cyborg Soldier 2050 CBC-TR-1599.pdf
+<iframe src="https://opeymd.github.io/mintfab1000/Cyborg_Soldier_2050.pdf" height="500" width="100%" title="Cyborg_Soldier_2050.pdf"></iframe>
+
+///
 # Graphite
 - [in Post-Globalized Industry](https://www.eetasia.com/us-chips-act-takes-center-stage-in-post-globalized-industry/)
 - 
