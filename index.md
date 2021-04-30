@@ -9,7 +9,7 @@
 <iframe style="border: none" src="//html5-player.libsyn.com/embed/episode/id/15511988/height/90/theme/custom/thumbnail/yes/direction/backward/render-playlist/no/custom-color/061344/" height="90" width="100%" scrolling="no"  allowfullscreen webkitallowfullscreen mozallowfullscreen oallowfullscreen msallowfullscreen></iframe>
 
 ### Cyborg Soldier 2050 CBC-TR-1599.pdf
-<iframe src="https://opeymd.github.io/mintfab1000/Cyborg_Soldier_2050.pdf" height="200" width="100%" title="Cyborg_Soldier_2050.pdf"></iframe>
+<iframe src="https://opeymd.github.io/mintfab1000/Cyborg_Soldier_2050.pdf" height="600" width="100%" title="Cyborg_Soldier_2050.pdf"></iframe>
 <br>
 >>> 
 >>> 
