@@ -8,6 +8,9 @@
 ### RAPPOS SUCK my DICK
 <iframe style="border: none" src="//html5-player.libsyn.com/embed/episode/id/15511988/height/90/theme/custom/thumbnail/yes/direction/backward/render-playlist/no/custom-color/061344/" height="90" width="100%" scrolling="no"  allowfullscreen webkitallowfullscreen mozallowfullscreen oallowfullscreen msallowfullscreen></iframe>
 
+### Cyborg Soldier 2050 CBC-TR-1599.pdf
+<iframe src="https://opeymd.github.io/mintfab1000/Cyborg Soldier 2050 CBC-TR-1599.pdf" height="200" width="100%" title="Cyborg Soldier 2050 CBC-TR-1599.pdf"></iframe>
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/SD93kUFAZho" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Whats happening? "neuromorphic computing" ##
@@ -55,11 +58,6 @@ war alike of the road,and of the woe which,the mind that erreth not shall retrac
 inscribe that which I saw,here shall thy nobility appear! Ibegan: 4 [GET](https://opeymd.github.io/mintfab1000/The_Divine_Comedy.pdf)
 **
 <iframe src="https://opeymd.github.io/mintfab1000/The_Divine_Comedy.pdf" height="200" width="100%" title="The_Divine_Comedy.pdf"></iframe>
-
-## Wet
-
-The_Divine_Comedy.pdf
-**** Sssssss sss s ns ns. s. s s sssss. s s s s s sssss s s s tsst sss s what? ???? siteeks
 
 ### Markdown
 
