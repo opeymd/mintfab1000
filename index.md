@@ -2,6 +2,9 @@
 
 ## Secret Rape - GO AHEAD DO ALL YOU CAN TO GUILT TRIP ME
 ### FBI - SUCK MY DICK
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/6ArBZ-ajzGI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+[GET- secrettelepathic orgy](https://opeymd.github.io/mintfab1000/secrettelepathic orgy.MP4)
+///
 <iframe width="100%" height="300" src="https://www.youtube.com/embed/Qow8pIvExH4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 [Kill this](https://github.com/opeymd/mintfab1000/edit/gh-pages/index.md)
 
@@ -9,7 +12,7 @@
 <iframe style="border: none" src="//html5-player.libsyn.com/embed/episode/id/15511988/height/90/theme/custom/thumbnail/yes/direction/backward/render-playlist/no/custom-color/061344/" height="90" width="100%" scrolling="no"  allowfullscreen webkitallowfullscreen mozallowfullscreen oallowfullscreen msallowfullscreen></iframe>
 
 ### Cyborg Soldier 2050 CBC-TR-1599.pdf
-<iframe src="https://opeymd.github.io/mintfab1000/Cyborg_Soldier_2050.pdf" height="600" width="100%" title="Cyborg_Soldier_2050.pdf"></iframe>
+<iframe src="https://opeymd.github.io/mintfab1000/Cyborg_Soldier_2050.pdf" height="500" width="100%" title="Cyborg_Soldier_2050.pdf"></iframe>
 <br>
 >>> 
 >>> 
@@ -43,9 +46,6 @@ These include the use of various drugs and forms of neurotechnologies such as ne
 - 
 - [Graphite for Electromagnetic Wave Absorption](https://blog.ohiocarbonblank.com/u-s-military-nuclear-energy-plants-use-graphite-eletcromagnetic-wave-absorption/)
 
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/6ArBZ-ajzGI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
-[GET- secrettelepathic orgy](https://opeymd.github.io/mintfab1000/secrettelepathic orgy.MP4)
 
 ### Galileo argued that – contrary to our intuition – the sun does not move around the earth. He also argued in his new theory of motion, which he developed in the second part of his Dialogo (1632), that we don’t need a force to maintain the motion of a heavy body in a horizontal plane.
 
