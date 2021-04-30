@@ -71,12 +71,25 @@ inscribe that which I saw,here shall thy nobility appear! Ibegan: 4 [GET](https:
 ```markdown
 Syntax highlighted code block
 
-# Header 1
-## Header 2
-### Header 3
+# A note for the wanna bee tough guy looser stalkers - Especially the piece of shit that stole the very last record I had. Ill make sure to milk out ur asshole too
 
-- Bulleted
-- List
+- Fuck your bass and "music"
+- Fuck your earholes
+- fuck what you think
+- fuck your apple google spacex god
+- fuck your ruined planet
+- fuck your ideas
+- fuck your city and "Hiphop" or HipHop wtf ever it is
+- fuck your families
+- fuck kim and your skid marks
+- fuck your "titles"
+- fuck who you "think" you are
+- fuck what you think you can do (little kids make you look stupid and can do a million times better you just dont know it yet and Im embarrased for you)
+- fuck "your" money and what you "think" you got
+- fuck your neighborhood and bullshit clicks
+- fuck your tech
+- - - - -
+- Give me a trailer down by the river. Remember, eat MY dick niggas
 
 - [Link] 
 
