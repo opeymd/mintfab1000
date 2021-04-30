@@ -10,7 +10,8 @@
 
 ### Cyborg Soldier 2050 CBC-TR-1599.pdf
 <iframe src="https://opeymd.github.io/mintfab1000/Cyborg_Soldier_2050_CBC-TR-1599.pdf" height="200" width="100%" title="Cyborg_Soldier_2050_CBC-TR-1599.pdf"></iframe>
-
+>>> 
+>>> 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/SD93kUFAZho" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Whats happening? "neuromorphic computing" ##
