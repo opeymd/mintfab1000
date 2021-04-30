@@ -9,10 +9,11 @@
 <iframe style="border: none" src="//html5-player.libsyn.com/embed/episode/id/15511988/height/90/theme/custom/thumbnail/yes/direction/backward/render-playlist/no/custom-color/061344/" height="90" width="100%" scrolling="no"  allowfullscreen webkitallowfullscreen mozallowfullscreen oallowfullscreen msallowfullscreen></iframe>
 
 ### Cyborg Soldier 2050 CBC-TR-1599.pdf
-<iframe src="https://opeymd.github.io/mintfab1000/Cyborg_Soldier_2050_CBC-TR-1599.pdf" height="200" width="100%" title="Cyborg_Soldier_2050_CBC-TR-1599.pdf"></iframe>
+<iframe src="https://opeymd.github.io/mintfab1000/Cyborg_Soldier_2050.pdf" height="200" width="100%" title="Cyborg_Soldier_2050.pdf"></iframe>
+<br>
 >>> 
 >>> 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SD93kUFAZho" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/SD93kUFAZho" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Whats happening? "neuromorphic computing" ##
 
