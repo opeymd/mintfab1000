@@ -1,9 +1,6 @@
 [Evil Drones ->](https://opeymd.github.io/drone/)
 
-## Secret Rape
-
-### FBI - Things i experience put into understandable terms
-(V2K) Voice to skull nearly 24/7 abuse. I think of something then hear a physical response in real time anywhere I go. These abusers need put in prison.
+## Secret Rape. I aint the peanut under the doormat, some loosers just can't digest that fact yet
 
 ///
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/6ArBZ-ajzGI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
