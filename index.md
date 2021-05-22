@@ -5,7 +5,6 @@
 ### FBI - Things i experience put into understandable terms
 (V2K) Voice to skull nearly 24/7 abuse. I think of something then hear a physical response in real time anywhere I go. These abusers need put in prison.
 
-Michael Bolton and Steve Wosniak I know for 100% fact. 
 ///
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/6ArBZ-ajzGI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 [GET- secrettelepathic orgy](https://opeymd.github.io/mintfab1000/secrettelepathic orgy.MP4)
@@ -70,28 +69,6 @@ inscribe that which I saw,here shall thy nobility appear! Ibegan: 4 [GET](https:
 
 ```markdown
 Syntax highlighted code block
-
-# A note for the wanna bee tough guy looser stalkers - Especially the piece of shit that stole the very last record I had. 
-# Ill make sure to milk out ur asshole too
-
-- Fuck your bass and "music"
-- Fuck your earholes
-- fuck what you think
-- fuck your apple google spacex god
-- fuck your ruined planet
-- fuck your ideas
-- fuck your city and "Hiphop" or HipHop wtf ever it is
-- fuck your families
-- fuck kim and your skid marks
-- fuck your "titles"
-- fuck who you "think" you are
-- fuck what you think you can do (little kids make you look stupid and can do what you do a million times better 
-you just dont know it yet and Im embarrased for you)
-- fuck "your" money and what you "think" you got
-- fuck your neighborhood and bullshit clicks
-- fuck your tech
-- - - - -
-- Give me a trailer down by the river. Remember, eat MY dick niggas
 
 - [Link] 
 
