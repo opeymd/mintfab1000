@@ -1,6 +1,7 @@
 [Evil Drones ->](https://opeymd.github.io/drone/)
 
-## Secret Rape. I aint the peanut under the doormat, some loosers just can't digest that fact yet
+## Secret Rape, secret apple 🍎 abuse, secret nigger name calling, secret blackmail, secret AA attacks
+### Like a voice through the wind. Its NOT GOD.
 
 ///
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/6ArBZ-ajzGI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
