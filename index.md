@@ -1,10 +1,8 @@
 [Evil Drones ->](https://opeymd.github.io/drone/)
 
-## Secret Rape, secret apple 🍎 abuse, secret nigger name calling, secret blackmail, secret AA attacks
-### Like a voice through the wind. Its NOT GOD.
-Im expecting about 100$ million sooner than later for all this nigger name calling "cgi" abuse bullshit. Niggas get put to death for torture. 
-Oh ya this aint baseball and I aint a nigger, especially a 17 year old nigger like I was at first contact. Fake aliens lol. Get a life
+## WTFEVRRRRRRR
 ///
+
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/6ArBZ-ajzGI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 [GET- secrettelepathic orgy](https://opeymd.github.io/mintfab1000/secrettelepathic orgy.MP4)
 ///
