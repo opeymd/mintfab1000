@@ -29,7 +29,7 @@ Make a git hub, document it and let them know they ALL can suck shit out the ass
 - told countless times its bass smell, its how I let the bass out
 - i meet cleveland smoke some bud then start experiencing this shit.  Perfect cover story shit
 - LeBron James throws illuminati up 10 feet away lookig right at me at private party, then I leave and go jack off. Maybe I should have sucked his dick?
--
+- im the best person i know. All facts
 
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/6ArBZ-ajzGI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 [GET- secrettelepathic orgy](https://opeymd.github.io/mintfab1000/secrettelepathic orgy.MP4)
