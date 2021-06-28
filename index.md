@@ -1,7 +1,16 @@
 [Evil Drones ->](https://opeymd.github.io/drone/)
 
 ## WTFEVRRRRRRR
-///
+/// What to do when Elon Musk, Wu-Tang, "Cleveland", Apple, and Facebook talk shit to you from satelite so no one else can relate? 
+Make a git hub, document it and let them know they ALL can suck shit out the asshole
+
+Why would anyone talk shit from satelite no one else can relate to? 
+- test thier technology 
+- spy on you jacking off
+- have fun torturing someone
+- dildo thier assholes 
+- national security reasons 
+- jack off and dildo thier assholes
 
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/6ArBZ-ajzGI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 [GET- secrettelepathic orgy](https://opeymd.github.io/mintfab1000/secrettelepathic orgy.MP4)
