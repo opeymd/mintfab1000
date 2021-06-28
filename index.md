@@ -4,13 +4,32 @@
 /// What to do when Elon Musk, Wu-Tang, "Cleveland", Apple, and Facebook talk shit to you from satelite so no one else can relate? 
 Make a git hub, document it and let them know they ALL can suck shit out the asshole
 
-Why would anyone talk shit from satelite no one else can relate to? 
+//// Why would anyone talk shit from satelite and with or without synthetic telepathy? 
 - test thier technology 
 - spy on you jacking off
-- have fun torturing someone
+- have fun torturing someone testing new programs 
 - dildo thier assholes 
 - national security reasons 
-- jack off and dildo thier assholes
+- jack off while dildoing thier assholes
+
+//// Why do I say these pukes are using tech as a weapon?
+- satelites says countless times its Apple, its cleveland, its Facebook, its mustard, asked many many times who is Wutang? or its wutang
+- They say the same thing over and over like its CGI, ITS FBI CGI, or its the girl. CGI also shows people taking it up the ass in a simulation 
+- they say its dick smell garuntee about 100x a day just to get me angry and need to blackmail me in some way
+- its a record deal, or its not a record deal
+- told to take my money then go back to bed or die
+- told to die countless times
+- asked many many times if I want my money
+- asked 100x a day for weeks if I want a dog 🐕 just before dodgecoin exploded 
+- threatened with diseases
+- i say to myself I dont like saying retard then emeniem says he says retard and take a spider, next day i get a horrible spider bite, then my mom gets bit this next time they say take a spider
+- wu-tang says its crystal, its dicksmell, its the girl,, its cancer, its the inventory countless times
+- my cousins cloud persona says go to windas, lindas (clair huxtable) countless times a day
+- cleveland makes sonic bass
+- told countless times its bass smell, its how I let the bass out
+- i meet cleveland smoke some bud then start experiencing this shit.  Perfect cover story shit
+- LeBron James throws illuminati up 10 feet away lookig right at me at private party, then I leave and go jack off. Maybe I should have sucked his dick?
+-
 
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/6ArBZ-ajzGI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 [GET- secrettelepathic orgy](https://opeymd.github.io/mintfab1000/secrettelepathic orgy.MP4)
